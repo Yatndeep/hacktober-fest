@@ -1,1 +1,1 @@
-### Enter your name college branch and in short what pull request you made for this folder
+### Yatndeep Dubey  ( B tech CSE from Veer Bahadur Singh Purvanchal University) Accept my Static Blog Website
